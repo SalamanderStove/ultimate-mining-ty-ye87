@@ -1,4 +1,4 @@
-#  
+#  ultimate mining tycoon Script instant is the best ultimate mining tycoon Script, featuring one-hit kill and teleport. Safe and powerful for all your
 
 
 
